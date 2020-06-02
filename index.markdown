@@ -267,6 +267,7 @@ title: "List of Bail Funds for Protestors"
 
 ## Washington, District of Columbia
 * *Money bail is not used in Washington, DC*
+* [BLM DC **Legal Support** Fund](https://www.gofundme.com/f/defendblmdc?utm_source=customer&amp;utm_medium=copy_link&amp;utm_campaign=m_pd%20share-sheet&amp;fbclid=IwAR2EExXvCcpza3PYg88fCJyqOYq1sEAnSnkpf2E1PjE-LBbqkq33HItB6cM)
 
 ## Wisconsin
 ### Madison
